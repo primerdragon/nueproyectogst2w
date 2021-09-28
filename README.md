@@ -1,1 +1,0 @@
-# nueproyectogst2w
